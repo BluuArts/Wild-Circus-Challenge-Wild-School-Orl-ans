@@ -1,4 +1,4 @@
-# Wild-Circus-Challenge-Wild-School-Orl-ans
+# Wild-Circus-Challenge-Wild-School-Orleans
 Wild Circus challenge :
 
 Wild Circus Challenge :
